@@ -1,3 +1,3 @@
 # handTracking
-Gueye mouhamed ,
+Gueye mouhamed et
 Gueye abdoulaye 
